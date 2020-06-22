@@ -1,4 +1,4 @@
-Sander Roos
+1. Sander Roos
 
 Amsterdam, the Netherlands
 Master student
